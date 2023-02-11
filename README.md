@@ -32,3 +32,8 @@ L'ère WebC est une époque plus intelligente, plus juste et plus ouverte. Dans 
 Nous appelons tout le monde, travaillons ensemble pour construire l'ère WebC, en utilisant la sagesse et la technologie pour apporter plus de bien-être et de progrès à l'humanité.
 
 Ere WebC, que la sagesse danse !
+
+
+
+### —— This declaration was issued by Shen Wansan from Hangzhou, China.
+
